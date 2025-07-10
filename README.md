@@ -4,7 +4,7 @@
 可达影视是一个集电影、电视剧、综艺、动漫等多种影视资源于一体的在线视频分享平台。它以提供丰富多样的影视资源和便捷的观看体验为特色，致力于满足不同用户的观影需求。用户可以在该平台上找到最新上映的电影、热门电视剧、经典动漫以及各类综艺节目等。此外，可达影视还提供艺人信息和云盘资源，方便用户获取更多相关内容。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14461.html" target="_blank" ><strong>可达影视最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshi" target="_blank" ><strong>影视在线看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
